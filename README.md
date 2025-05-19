@@ -1,1 +1,0 @@
-# Se-ales_sistemas
